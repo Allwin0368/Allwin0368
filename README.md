@@ -1,4 +1,4 @@
-## Hi, i'm Allwin 👋
+## Hi, i'm Allwin, Aspiring Professional Software Developer💻
 
 <!--
 
